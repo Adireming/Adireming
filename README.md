@@ -15,8 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-# Hi there 👋  
-
 🎵 **Music Lover | Avicii Fan | Code Enthusiast** 🎵  
 
 Hey! I'm a huge fan of **Avicii**, and his music has always been a source of inspiration for me. Some of my all-time favorite tracks include:  
